@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nik1965
+- 👋 Hi, I’m @Nikk1965
 - 👀 I’m interested in ...3d  печать
 - 🌱 
 - 💞️ I’m  интересуюсь темой
